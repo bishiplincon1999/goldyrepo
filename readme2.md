@@ -1,3 +1,11 @@
+https://forms.gle/F7rJFEvLe86BgfMs6
+https://wasearch.loc.gov/e2k/*/survivingspirits.com
+https://www.theverge.com/users/survivingspirits1212
+https://desitvbox9.net/
+https://biggboss16.in/
+https://biggboss16.it/
+https://doramasmp4.pl/
+https://dramanice.mom/
 https://lexsrv2.nlm.nih.gov/fdse/search/search.pl?Match=0&Realm=All&Terms=https%3A%2F%2Fsurvivingspirits.com
 https://t.me/iv?url=https%3A%2F%2Fsurvivingspirits.com
 https://pw.mail.ru/forums/fredirect.php?url=survivingspirits.com
